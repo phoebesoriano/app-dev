@@ -11,15 +11,15 @@
 
 **its about jobless man who is a gamer and suddenly got to be in an unreal world where he experience to play real-life games that compromise his own life.*
 
-# My favorite Movies 
+# My Favorite Movies 
 **My Precious**
 
 **its about a group of friends who experience first love and deciding what the future holds for them in the coming y2k era.*
 
 **Howl's Moving Castle**
 
-**its about a the magical adventure of Sophie in a flying castle with wizard Howl*
+**its about a the magical adventure of Sophie in a flying castle with wizard Howl.*
 
 **Four Sisters and a Wedding**
 
-**its about a family drama that depicts the love of sisters for their younger brother who decides to get married to a rich family*
+**its about a family drama that depicts the love of sisters for their younger brother who decides to get married to a rich family.*
